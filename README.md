@@ -1,0 +1,1 @@
+This is a personal information about the website that i am going to make
